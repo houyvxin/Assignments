@@ -3,8 +3,8 @@
 >*Luo Xiaohei* is a dark and lovely kitten, from the cartoonist *MTJJ*'s hand.
 
 1.![](/pic.jpg 'Luo Xiaohei')
-2.
-![](https://ss3.baidu.com/-fo3dSag_xI4khGko9WTAnF6hhy/zhidao/pic/item/5366d0160924ab18a9f942873efae6cd7a890b96.jpg)
+
+2.![](https://ss3.baidu.com/-fo3dSag_xI4khGko9WTAnF6hhy/zhidao/pic/item/5366d0160924ab18a9f942873efae6cd7a890b96.jpg)
 
 birthday|age|race|ability
 :-:|:-:|:-:|:-:
